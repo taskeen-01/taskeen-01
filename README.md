@@ -42,4 +42,4 @@ To begin my career as a **Data Scientist**, where I can apply analytical thinkin
 ## 🔗 Connect With Me
 
 - **LinkedIn**: https://www.linkedin.com/in/taskeen-shaikh/
-- **Email**: tasskeenshaikh@gmail.com
+- **Email**: taskeen.shaikh2026@gmail.com
